@@ -1,2 +1,2 @@
 # Is-Meat-Good-or-Bad-2025
-Health book on carnivore, veganism, and a host of other health topics
+Health book on carnivore, veganism, and a host of other health topics (2025 edition)
